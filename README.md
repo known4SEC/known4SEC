@@ -1,3 +1,3 @@
 N/A
 
-I just don't wanna share what I like or what I do with others.
+I don't wanna share with others what I'm into or what I like.
