@@ -1,2 +1,3 @@
-Hi, I’m @known4SEC
-I’m interested in Network Security
+N/A
+
+I just don't wanna share what I like or what I do with others.
